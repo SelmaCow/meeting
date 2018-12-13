@@ -10,4 +10,4 @@ ZB MED
 
 ## Mehr Infos
 
-Kommt alle!
+Kommt alle und bringt Kekse!
